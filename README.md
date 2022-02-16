@@ -1,0 +1,1 @@
+# THOGHT-OF-THE-DAY-
